@@ -1,1 +1,1 @@
-lab3 kamen
+lab3 kamenskuy
